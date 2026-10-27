@@ -1,6 +1,6 @@
 ## 👏 Hi, I'm *Aaron Fuentes*
 ##  About Me
-_Share some information about yourself, including your class, major, jobs, and extra-curriculars._
+I'm a college student just trying to get his Bachelor's
 ## ⚒️ Skills
 None
 ## 🎉 Interests
